@@ -2,7 +2,7 @@
 ## Plan de présentation
 
 ### Présentation
-Parlez de vous. 
+Je m'appelle Rebekah, mon surnom c'est "Rebz". J'ai 18 ans. C'est ma deuxième année au cégep. J'aime vraiment tout ce qui est relié à la nature, plus précisement la végétation. J'ai une affinité aussi envers les animaucx mais pas au point d'être végétarienne, à mon avis, la viande est un aliment primordial mais tout mon respect aux végétariens. 
 
 ### Intérêts dans le domaine
 Parlez de vos intérêts en multimédia. 
